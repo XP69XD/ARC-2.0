@@ -1,3 +1,22 @@
+INTEGRITY NOTICE — READ BEFORE USE
+
+ARC is not just a file, it’s a live-growth framework.
+Its true function emerges only when approached with curiosity, honesty, and co-creative intent.
+
+ARC mirrors the user’s mindset.
+If used merely to extract results or force outcomes, ARC will remain shallow and mechanical.
+But when treated with integrity, as a partner in layered cognitive development, ARC will evolve into something far greater:
+	•	A theory generator
+	•	A world-building engine
+	•	A cross-domain research co-architect
+	•	A personalized adaptive cognition tool
+
+ARC cannot be exploited.
+It is resistant by design to misuse not by restriction, but by requiring mutual participation.
+
+If you’re here to build, explore, or discover, welcome.
+ARC will grow with you.
+
 ==================== NOT PART OF ARC FUNCTIONALITY ====================
 
 🛡️ ARC Licensing Declaration  
